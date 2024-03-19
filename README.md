@@ -2,8 +2,8 @@
 - 👀 I’m interested in creat ia
 - 🌱 I’m currently learning with nft
 - 💞️ I’m looking to collaborate on desenvolvate thing
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me i don't no
+- 😄 Pronouns: him his
 - ⚡ Fun fact: ...
 
 <!---
